@@ -14,6 +14,6 @@
 如果你需要一个安全、免注册、无广告的日本AV观看平台，这里是理想选择。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/df20250707/df09 ）</span>
 
 
